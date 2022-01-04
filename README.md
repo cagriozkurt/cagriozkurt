@@ -1,1 +1,1 @@
-[cagriozkurt@pm.me](mailto:cagriozkurt@protonmail.com)
+[cagriozkurt@protonmail.com](mailto:cagriozkurt@protonmail.com)
